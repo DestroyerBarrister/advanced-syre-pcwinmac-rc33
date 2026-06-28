@@ -1,4 +1,4 @@
-# 
+# New Advanced SystemCare add-ons for Mac OS | Turbo Advanced SystemCare add-ons for PC Windows. Featuring system diagnostics and alert notifications — optimized for maximum performance on every platform.
 
 
 
